@@ -14,3 +14,13 @@ Oh Bethlehem, come and behold
 The Lamb of God enter His fold  
 Come and receive you who believe  
 The precious gift of God
+
+Oh Bethlehem, taste now and see  
+The Bread of Life, priceless and free  
+Go where He’s trod, feed on your God  
+And never want again
+
+Oh Bethlehem, come and rejoice  
+Give to your God, with heart and voice  
+A song of praise, His anthem raise  
+And worship Him on high
